@@ -1,4 +1,4 @@
-# JANELA DE MUDANÇAS PROTHEUS
+# ![alt text](https://grupoelfa.com.br/wp-content/uploads/2018/01/cropped-grupo-elfa-logo-1.png)  JANELA DE MUDANÇAS PROTHEUS
 
 **Responsável:** Lucas Barbosa\
 **Extraordinária?** ( ) Sim ( X ) Não\
